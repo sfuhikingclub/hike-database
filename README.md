@@ -24,11 +24,11 @@ Cool hikes to do every once in a while:
 
 Very difficult hikes to try:
 
-* Mount MacDonald
-* Williams Peak
+* MacDonald Peak
 * Mount McFarlane
 * Mount Weart
 * Rainbow Mountain
+* Williams Peak
 
 Weird little romp into the backcountry:
 
